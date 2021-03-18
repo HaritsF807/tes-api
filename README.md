@@ -1,2 +1,2 @@
 # ini lagi proses
-Gak ada
+Cie nyariin
